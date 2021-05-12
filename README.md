@@ -1,9 +1,6 @@
 ### Hi there 👋
 
-<!--
-**truonghuy1011/truonghuy1011** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
+I love this life 👌👌👌 it's interested 
 
 - 🔭 I’m currently working on 
 - 🌱 I’m currently learning about Data Science
