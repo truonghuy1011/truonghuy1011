@@ -8,6 +8,6 @@ I love this life 👌👌👌 it's interested
 - 🤔 I’m looking for help with Big data processing 
 - 💬 Ask me about anything, I'll answer them to the best of my ability
 - 📫 How to reach me 
-- 😄 Pronouns: He
+- 😄 Pronouns: He, H
 - ⚡ Fun fact: I afraid of snake
 -->
